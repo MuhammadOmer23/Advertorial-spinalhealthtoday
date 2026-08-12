@@ -1,0 +1,2 @@
+# Advertorial-spinalhealthtoday
+editorial
